@@ -116,4 +116,4 @@ Our turbo card has been stably operating at a temperature below 75 degrees for a
 
 
 ## Xianyu purchase channel
-![image1](./images/WechatIMG686.jpg)
+![image1](./微信图片_20261008124911_117_483.jpg)
